@@ -1,1 +1,1 @@
-# Pro-Class-157-Virtual-Travel-Creating-Thumbnails
+# PRO-C157-Student-Activity
